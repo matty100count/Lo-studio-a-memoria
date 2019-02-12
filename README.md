@@ -1,1 +1,2 @@
 # Lo-studio-a-memoria
+La scuola di oggi scoraggia l'apprendimento a memoria, infatti questo metodo di studio non da gli stessi risultati che si ottengono attraverso lo studio logico. Nello studio è importante privilegiare la comprensione sulla memorizzazione, infatti per recuperare un informazione non è necessario conoscere tutte le parole, ma è utile creare dei punti fermi, creando delle reti di connessione della mente.Tornando a parlare di studio a memoria credo che valga la pena utilizzarlo nello studio delle poesie e delle canzoni.
